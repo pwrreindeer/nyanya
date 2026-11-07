@@ -1,4 +1,4 @@
-# nyanya
+# infououou
 ![image alt](https://github.com/fossilbaskqt/-/blob/65ce51a51562ccd3166751a80bfdaaf538aa0023/Untitled314_20261029142745.png)
 
 
@@ -20,14 +20,9 @@
 
 ୨୧ ⌒ . might dc sometimes ;
 
-꒰ . fandoms : dw , wcue/wc , da .
+꒰ . fandoms : wcue/wc , sp .
 
 ![image alt](https://github.com/fossilbaskqt/nyanya/blob/5f03026fe12ddde36e5d9ec2bcd31097894b9036/Untitled314_20261029144116.png)
 
-HF*5*1 on dw
-
-**4**.1k fs
-
-**6**.2k mf
-
-29 dmc
+,, i-i got a new life ,
+youd hardly recognize me. . im so glad! ''
