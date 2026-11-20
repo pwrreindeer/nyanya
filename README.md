@@ -4,9 +4,11 @@
 
 ## ***call me . .  xeoni ! - nicknames ;; xeo , xeni , neoxi , uni/oni***
 
-### *pr*o*n*oun*s* > any !
+### *pr*o*n*oun*s* > any , as long as im comfy with it .
 
-# info >>
+## DNI ;; problematic , ''dnt'' people (?) , supports problematic people etc, doubles (kyle broflovski fictkin) & more .
+
+## info >>
 
 ꒰ . i love cats ,
 
@@ -22,7 +24,7 @@
 
 ꒰ . fandoms : wcue/wc , sp .
 
-![image alt](https://github.com/fossilbaskqt/nyanya/blob/5f03026fe12ddde36e5d9ec2bcd31097894b9036/Untitled314_20261029144116.png)
+,, 
 
 ,, i-i got a new life ,
 youd hardly recognize me. . im so glad! ''
