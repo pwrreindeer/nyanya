@@ -16,7 +16,7 @@
 
 ୨୧ ⌒ . i draw ships,reqs,designs ;
 
-꒰ . M , A , R , U ily platonically <3 . .
+꒰ . M , A , R , U , E ily platonically <3 . .
 
 ୨୧ ⌒ . might dc sometimes ;
 
