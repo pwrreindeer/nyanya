@@ -10,13 +10,13 @@
 
 ꒰ . i love cats ,
 
-୨୧ ⌒ . and littel kittis !
+୨୧ ⌒ . i mostly dont play pt due to being busy !
 
 ꒰ . artist , art sucks thou :(
 
 ୨୧ ⌒ . i draw ships,reqs,designs ;
 
-꒰ . im not oftenly on pt . .
+꒰ . M , A , R , U ily platonically <3 . .
 
 ୨୧ ⌒ . might dc sometimes ;
 
