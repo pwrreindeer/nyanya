@@ -2,9 +2,9 @@
 ![image alt](https://github.com/fossilbaskqt/-/blob/65ce51a51562ccd3166751a80bfdaaf538aa0023/Untitled314_20261029142745.png)
 
 
-## ***call me . .  ely or angel !***
+## ***call me . .  xeoni ! - nicknames ;; xeo , xeni , neoxi , uni/oni***
 
-### *pr*o*n*oun*s* > kittye/kit/she/it
+### *pr*o*n*oun*s* > any !
 
 # info >>
 
